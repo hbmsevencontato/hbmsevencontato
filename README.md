@@ -4,4 +4,4 @@ English: Join our discord for purchases and support on scripts and maps
 
 https://discord.gg/6FbZnQ8cHX
 
-Em Breve Novidade
+24/nov
